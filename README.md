@@ -1,3 +1,3 @@
-# BajaBlastGrrl.github.io
+# [BajaBlastGrrl.github.io](https://bajablastgrrl.github.io)
 cool! :)
-weed
+qweed
